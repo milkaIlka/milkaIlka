@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @milkaIlka
+- I like cookies and 3d modelling. Currently I am learning to work with geometry nodes and textures. I currently do not look for collaborations. You can send me a cookie.
